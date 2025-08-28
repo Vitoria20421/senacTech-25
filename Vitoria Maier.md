@@ -1,1 +1,0 @@
-# senacTech-25
